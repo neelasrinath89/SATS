@@ -1,0 +1,2 @@
+# SATS
+Choose Your Magnets
